@@ -4,7 +4,8 @@ BYI
 - Yes, i'm a dream fan (i interact with canon not cc most of the time but still). If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed. I'm 16, and i'm from New Zealand! I'm also a trans guy so he/him pronouns are appreciated unless specified, thanks <3
 
 DNI
-- tommyinnit fans, jack manifold fans, quackity fans, drantis. Anyone under 14 DNI, anyone over 25 IWC. 
+- tommyinnit fans, jack manifold fans, quackity fans, drantis. Anyone under 14 DNI, anyone over 25 IWC.
+- Less strict about, but forsaken/dandy's fans dont talk to me about said subjects. I have a strong hatred towards those games lmao.
 
 Fandoms 
 - I'm an MCYT fan and love lifesteal (mainly rekrap2 and clownpierce), i love Minecraft ARGs - And yes i like SFAWTDE as well as others !
