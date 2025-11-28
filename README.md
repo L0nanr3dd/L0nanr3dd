@@ -1,4 +1,4 @@
-## HI!!!!!
+## Hi! Please read <3
 
 BYI 
 - Yes, i'm a dream fan (i interact with c, not cc most of the time but still). If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed. I'm a 16 year old, and i'm from New Zealand! 
