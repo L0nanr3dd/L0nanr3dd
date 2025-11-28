@@ -9,6 +9,8 @@ DNI
 Fandoms 
 - I'm an MCYT fan and love lifesteal (mainly rekrap2 and clownpierce), i love Minecraft ARGs - And yes i like SFAWTDE as well as others !
 I love Smii7y+ House / FROUSE, CRK, Parkour Civilisation, Solo Leveling, LOTR/The Hobbit, and other fandoms
+
+This repo is still being added to, i'm too lazy rn to finish it lmao, thanks for reading and sign my ata ! ^^
 <!--
 **L0nanr3dd/L0nanr3dd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
