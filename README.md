@@ -1,7 +1,7 @@
 ## Hi! Please read <3
 
 BYI 
-- Yes, i'm a dream fan (i interact with c, not cc most of the time but still). If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed. I'm a 16 year old, and i'm from New Zealand! 
+- Yes, i'm a dream fan (i interact with canon not cc most of the time but still). If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed. I'm 16, and i'm from New Zealand! I'm also a trans guy so he/him pronouns are appreciated unless specified, thanks <3
 
 DNI
 - tommyinnit fans, jack manifold fans, quackity fans, drantis. Anyone under 14 DNI, anyone over 25 IWC. 
