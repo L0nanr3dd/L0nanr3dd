@@ -1,11 +1,14 @@
 ## HI!!!!!
 
-#BYI /DNI
-- Yes, i'm a dream fan. If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed.
+BYI 
+- Yes, i'm a dream fan (i interact with c, not cc most of the time but still). If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed. I'm a 16 year old, and i'm from New Zealand! 
 
+DNI
+- tommyinnit fans, jack manifold fans, quackity fans, drantis. Anyone under 14 DNI, anyone over 25 IWC. 
 
-#Fandoms 
-: I'm an MCYT fan and love lifesteal (mainly rekrap2 and clownpierce), i love ARGs - And yes i like SFAWTDE as well as others ! I <3 Smii7y+ House / FROUSE, CRK, Parkour Civilisation, 
+Fandoms 
+- I'm an MCYT fan and love lifesteal (mainly rekrap2 and clownpierce), i love Minecraft ARGs - And yes i like SFAWTDE as well as others !
+I love Smii7y+ House / FROUSE, CRK, Parkour Civilisation, Solo Leveling, LOTR/The Hobbit, and other fandoms
 <!--
 **L0nanr3dd/L0nanr3dd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
