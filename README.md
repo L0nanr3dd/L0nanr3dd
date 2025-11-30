@@ -1,5 +1,7 @@
 ## Hi! Please read <3
 
+feel free to sign ata and read my pronouns.cc ! Strawpage in production currently
+
 BYI 
 - Yes, i'm a dream fan (i interact with canon not cc most of the time but still). If you're an anti, please don't interact with or harrass me. I'm autistic, and adhd diagnosed. I'm 16, and i'm from New Zealand! I'm also a trans guy so he/him pronouns are appreciated unless specified, thanks <3
 - I block freely.
