@@ -9,14 +9,13 @@ BYI
 
 DNI
 - Basic DNI (homophobes, transphobes, racists, ableists, etc.)
-- tommyinnit fans, jack manifold fans, quackity fans, drantis. Anyone under 14 DNI, anyone over 25 IWC.
+- tommyinnit fans, jack manifold fans, quackity fans. Anyone under 14 DNI, anyone over 25 IWC.
 - Less strict about, but forsaken/dandy's fans dont talk to me about said subjects. I have a strong hatred towards those games lmao.
 - Furry / Therian / Kemonomimi antis
 - Anybody who disagrees with me politics-wise - I'm a radical leftist
 
 Fandoms 
-- I'm an MCYT fan and love lifesteal (mainly rekrap2 and clownpierce), i love Minecraft ARGs - And yes i like SFAWTDE as well as others !
-I love Smii7y+ House / FROUSE, CRK, Parkour Civilisation, Solo Leveling, LOTR/The Hobbit, and other fandoms
+- I love MHA, LOTR, Smii7y+ House / FROUSE, Haikyuu!, Solo Leveling, and a lot more ! 
 
 This repo is still being added to, i'm too lazy rn to finish it lmao, thanks for reading and sign my ata ! ^^
 <!--
